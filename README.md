@@ -15,3 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+ Trabajadora, creativa y proactiva.  Ambiciosa, entusiasta en seguir creciendo. 
+Interesada en el mundo de la programación, con muchas ganas de aprender y crecer a nivel personal y profesional.
+Mejorando, probando nuevos retos y motivada en el dia a dia++
